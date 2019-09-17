@@ -28,3 +28,4 @@ Post #3 Have you followed Sophos APJ LinkedIn page yet? Make sure you do and we'
 To keep it interesting, marketing is offering a prize to the individual with the most likes on their page by the end of September for their Sophos APJ LinkedIn post. 
 
 Appreciate your help as we amplify our brand on the Social Media stage.
+sophos
